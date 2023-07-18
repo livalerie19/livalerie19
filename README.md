@@ -1,5 +1,5 @@
 ### Hi there 👋
-i love dogs 🐕 and eating and sleeping
+i love dogs 🐕 and eating 🌶️ and sleeping
 # z
 ## z
 ### z
